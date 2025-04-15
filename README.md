@@ -1,7 +1,4 @@
- ![.](https://media1.tenor.com/m/jVk-eSLi6W0AAAAd/ml-mlb.gif) 
- 
- luka / pony name   -    #1 luka couffaine fan    -    it / its only     -    ftm  queerbo
+ ![.](https://i.postimg.cc/ht6T0R2w/853824-CE-9616-4941-AAC3-AAE72-D550-B37.jpg)
 
- intro mainly wip  ,,   find me as luka couffaine or ethan nakamura near phighting , creepypasta , greek mythos / pjo / etm spot
-
- often on wti , take the warningz in my pony namez sometimes w a grain of salt , often dniucf or sv
+read my rentry hashtag swag
+loyal 2 nicodiangeIo username
